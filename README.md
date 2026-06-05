@@ -26,7 +26,7 @@
 
 ## Connect With Me
 
-📧 Email: [your-email@example.com](mailto:your-email@example.com)
+📧 Email: palakgogna62@gmail.com
 
 🔗 LinkedIn: linkedin.com/in/palak-g-2316a8330/
 
