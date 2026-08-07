@@ -1,6 +1,6 @@
 # Hi, I'm Palak Gogna 👋
 
-🎓 BCA Student (4th Semester) at MCM DAV College for Women, Chandigarh
+🎓 BCA Student (5th Semester) at MCM DAV College for Women, Chandigarh
 
 💻 Passionate about Technology, Python Programming, and Web Development
 
